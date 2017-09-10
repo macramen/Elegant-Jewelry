@@ -1,1 +1,1 @@
-# Elegant-Jewelry
+# Elegant-Jewelry unique handmade macrame jewelry
